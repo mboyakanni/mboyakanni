@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mboyakanni
-- 👀 I’m interested in Job offer
+- 👀 I’m interested in Job offers
 - 💞️ I’m looking to collaborate on Projects
 - 📫 You can reach me on Gmail at raheemmubarak7@gmail.com
 
